@@ -7,4 +7,4 @@ Juan Diego Caguasango Cajigas: 1004232960 Bioingenieria
 
 Anny Elizabeth Raigoza Restrepo: 1000190629 Bioingenieria
 
-Link de Youtube Entrega 2: 
+Link de Youtube Entrega 2: https://youtu.be/-jHBpw64VpI
